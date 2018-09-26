@@ -1,0 +1,1 @@
+Este repositorio es una basura. Amén.
